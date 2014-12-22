@@ -36,16 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-AN
-EPITOME
-OF THE
-HISTORY
-OF FAIRE
-ARGENIS
-AND
-POLYARCHUS,
-Extracted out of the Latin, and put
-in Fr
+
 1. TO THE
 MOST VERTVOVS
 MY MOST
